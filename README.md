@@ -1,2 +1,9 @@
-# Youtube-marketing-
-Youtube marketing all link
+# Youtube-marketing
+
+
+
+
+master your video marketing - http://vidiq.com/
+master your video marketing - https://www.tubebuddy.com/
+Text To Video - https://spark.adobe.com/sp/
+Youtube banner - https://www.bannersnack.com
