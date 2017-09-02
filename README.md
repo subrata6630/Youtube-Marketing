@@ -11,4 +11,4 @@ Youtube banner - https://www.bannersnack.com
 
 Create Large YouTube Thumbnails for Facebook- http://you2u.be/
 
-freemake Video Converter(mp3-video-add image) - http://www.freemake.com/free_video_converter/
+mp3-video-add image - http://ez-converter.com/
