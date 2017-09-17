@@ -18,17 +18,15 @@ mp3-video-add image - http://ez-converter.com/
 
 # For Reddit Marketing:
 
-http://redditlist.com/
-https://imgur.com/
-https://www.flickr.com
-http://karmadecay.com
+http://redditlist.com/ </br>
+https://imgur.com/ </br>
+https://www.flickr.com </br>
+http://karmadecay.com </br>
 
 
 # For Twitter Marketing:
 
-https://www.crowdfireapp.com
-http://www.all-hashtag.com
-http://twuffer.com
+https://www.crowdfireapp.com</br>
+http://www.all-hashtag.com</br>
+http://twuffer.com</br>
 
-
-https://sourceforge.net/projects/laragon/files/releases/3.1/laragon-wamp.exe
