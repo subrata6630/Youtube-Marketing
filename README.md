@@ -30,77 +30,80 @@ https://www.crowdfireapp.com</br>
 http://www.all-hashtag.com</br>
 http://twuffer.com</br>
 
+# E-mail Marketing:
+https://www.mailerlite.com/
+
 YouTube  Training Contents
 ---------------------------------------
-– Keyword Analysis
-– Micro Niche Selection Process
-– How To Use Socialblade.com?
-Learning & Earning From YouTube
+– Keyword Analysis</br>
+– Micro Niche Selection Process</br>
+– How To Use Socialblade.com?</br>
+Learning & Earning From YouTube</br>
 
-– Adsense
-– How To Add Multiple Gmail ID To Adsense?
-– SEO
-– Channel Optimization
-– Creation of Multiple Channels in a Single Gmail Account.
-– Add Multiple Channels In One Adsense.
-– Image Optimization
-– Video Selection & Download.
-– Video Editing (Camstudio 8)
-– Video Monetization
-– Promote To Social Media
-– How To Use Pinglr.com?
-– Annotation Use On YouTube Video.
-– Big Thumbnail to FaceBook.
-– Unique Image Creation
-– Checking Earnings with Google Adsense
-– Idea on Teespringer.com
-– Idea on Affiliate Marketing (FaceBook & Google Blogger)
+– Adsense</br>
+– How To Add Multiple Gmail ID To Adsense?</br>
+– SEO</br>
+– Channel Optimization</br>
+– Creation of Multiple Channels in a Single Gmail Account.</br>
+– Add Multiple Channels In One Adsense.</br>
+– Image Optimization</br>
+– Video Selection & Download.</br>
+– Video Editing (Camstudio 8)</br>
+– Video Monetization</br>
+– Promote To Social Media</br>
+– How To Use Pinglr.com?</br>
+– Annotation Use On YouTube Video.</br>
+– Big Thumbnail to FaceBook.</br>
+– Unique Image Creation</br>
+– Checking Earnings with Google Adsense</br>
+– Idea on Teespringer.com</br>
+– Idea on Affiliate Marketing (FaceBook & Google Blogger)</br>
 
 
 Affiliation Program Contents:
 -----------------------------------------
-Affiliation # 1: Website With Google Blogger
-How and why to use blogger methods?
-Blog Creation
-Create Post
-Create Menu
-Insert images to Google Image
-Inert Image from Google Image to Blog
-Set Image Caption & Properties
-Apply Links to Blog Text
-Share to FB Own Time Line
-Blogger SEO
-Blog Layouts
-Blog Template
-Blog Settings
-Google Submission
-Sitemap Submission
-Reviews
+Affiliation # 1: Website With Google Blogger</br>
+How and why to use blogger methods?</br>
+Blog Creation</br>
+Create Post</br>
+Create Menu</br>
+Insert images to Google Image</br>
+Inert Image from Google Image to Blog</br>
+Set Image Caption & Properties</br>
+Apply Links to Blog Text</br>
+Share to FB Own Time Line</br>
+Blogger SEO</br>
+Blog Layouts</br>
+Blog Template</br>
+Blog Settings</br>
+Google Submission</br>
+Sitemap Submission</br>
+Reviews</br>
 Exam
  
 Affiliation # 2: SMM Online-Marketing on Facebook
-Social Media Marketing Basics
-New Id creation of FB, Twitter and Gmail.
-How to 100% completion of FB profiles.
-Niche selection methods and techniques.
-Marketplace
-What is marketplace.
-How to register.
+Social Media Marketing Basics</br>
+New Id creation of FB, Twitter and Gmail.</br>
+How to 100% completion of FB profiles.</br>
+Niche selection methods and techniques.</br>
+Marketplace</br>
+What is marketplace.</br>
+How to register.</br>
 How to select products.
-How to get links of products.
-Facebook
-How to create FB Fan Pages.
-How to create FB Groups.
-How to add FB friends
-How to add FB groups and conditions.
-How to add FB friends and conditions.
-How to post on FB groups and conditions.
-How to send message individually and conditions.
-How to schedule post to FB fan page.
-How to increate likes on FB fan page.
-Twitter and Tweepi
-Complete 100% profile.
-How to add followers and conditions.
-How to flash and conditions.
-How to post on Twitter and conditions.
-How to schedule post on FB, Twitter.
+How to get links of products.</br>
+Facebook</br>
+How to create FB Fan Pages.</br>
+How to create FB Groups.</br>
+How to add FB friends</br>
+How to add FB groups and conditions.</br>
+How to add FB friends and conditions.</br>
+How to post on FB groups and conditions.</br>
+How to send message individually and conditions.</br>
+How to schedule post to FB fan page.</br>
+How to increate likes on FB fan page.</br>
+Twitter and Tweepi</br>
+Complete 100% profile.</br>
+How to add followers and conditions.</br>
+How to flash and conditions.</br>
+How to post on Twitter and conditions.</br>
+How to schedule post on FB, Twitter.</br>
